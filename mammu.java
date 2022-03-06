@@ -1,3 +1,4 @@
 
 
-hi how r u ..i have been practicing the commands since a long time.i'm practicing the commands. 
+hi how r u. i have been practicing the commands since a lot of time.i'm practicing the commands.
+
